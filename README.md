@@ -33,6 +33,8 @@
 - <https://vk.com/zhu.anastasia>
 - <https://www.instagram.com/zhu.anastasia/>
 
+***
+
 **Расписание занятий:**
 
 *День недели/пара*|*ПН*|*ВТ*|*СР*|*ЧТ*|*ПТ*|*СБ*
